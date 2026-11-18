@@ -82,6 +82,9 @@ La demostración completa se realiza de forma privada e incluye un recorrido por
 
 **Contactame para consultar disponibilidad, alcance y modalidad comercial.**
 
+- **Usuario:** diversion777
+- **Correo:** [diversion777@proton.me](mailto:diversion777@proton.me)
+
 ---
 
 ### Sobre este repositorio
